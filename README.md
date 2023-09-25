@@ -1,2 +1,2 @@
 # University.
-Competitor: Ad: https://youtu.be/P3csqumgMBI - Lander: 
+Competitor: Ad: https://youtu.be/P3csqumgMBI - Lander: https://www.govodyssey.com/free-training-yt - Tracking: https://www.govodyssey.com/free-training-yt?utm_campaign=20583059686&utm_source=ytv&utm_medium=cpc&utm_content=youtube.com&utm_term=&ad_id=674888210344&gc_id=20583059686&gc_id=20583059686&h_ad_id=674888210344&h_ad_id=674888210344&utm1&gclid=CjwKCAjw38SoBhB6EiwA8EQVLo8BaEsPt7TO2Wgir5tm0c2jNR0h6u1EyOiDAgLOxSyobw_810YsvBoC270QAvD_BwE
